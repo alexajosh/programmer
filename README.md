@@ -1,0 +1,2 @@
+# programmer
+different thinking
